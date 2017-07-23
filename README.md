@@ -31,3 +31,8 @@ friend-sourcing
 从公司吸收平台和资源，壮大自己的势能
 不借助资源，创造资源/打造个人的品牌
 #锚已经开始收起，航船开始驶向大海，你还在安排观望么。
+
+
+#种一棵树最好的时间是十年前，其次是现在
+The best time to plant a tree was 10 years ago. The second best time is now. -------Chinese Proverb
+(原句是20年哦~）
