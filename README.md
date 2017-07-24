@@ -159,4 +159,8 @@ http://www.cosmocos.com/		韩国所望品牌洗护
 									
 http://www.123certificates.com/completion.php			证书小网站						
 									
-http://shortof.com/list/FLA			搜英文缩写						
+http://shortof.com/list/FLA			搜英文缩写		
+
+https://liyuans.com/		资源类个人博客			
+http://msdn.itellyou.cn/		常用软件，安装测试中文版			
+
