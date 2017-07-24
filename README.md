@@ -43,7 +43,7 @@ http://www.geekpark.net/
 									
 http://www.pp93.com/	导航网址								
 http://www.kkiikk.com/									
-http://lackar.com/aa/									
+http://lackar.com/aa/		anywhere	全球网址							
 https://navisec.it/	NaviSec.it – 纳威安全导航								
 https://fulck.com/									
 http://www.kanng.net/	 it专业导航								
