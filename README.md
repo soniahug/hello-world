@@ -185,3 +185,13 @@ http://search.chongbuluo.com/
 链接：https://www.zhihu.com/question/19962935/answer/136668611
 来源：知乎
 著作权归作者所有。商业转载请联系作者获得授权，非商业转载请注明出处。
+PPT类
+http://www.hippter.com/index.html
+
+设计类
+设计师网址导航
+SDC设计师网址导航 - 学设计从这里开始！
+牛大拿设计师导航_Niudana.com
+设计导航 - 精选最好的设计网站大全
+
+
