@@ -199,3 +199,15 @@ SDC设计师网址导航 - 学设计从这里开始！
 
 https://www.henrypp.org/
 
+ https://www.douban.com/group/topic/18819189/?type=like&start=0 豆瓣杂志
+ https://automatetheboringstuff.com/chapter1/ paython 学习
+
+http://twitter.com/bojojengames
+
+http://www.egouz.com/magazine/ 全球杂志
+
+https://top.aizhan.com/ 爱站网 站点
+
+https://item.rakuten.co.jp/soukai/c/0000003516/  乐天超级市场
+
+https://item.rakuten.co.jp/soukai/4973167207789/?l-id=bevivi_beauty_item_top_kanebo_kate_18
